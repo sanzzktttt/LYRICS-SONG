@@ -1,8 +1,2 @@
 # LYRICS-SONG
-“Aku jatuh, tapi kali ini bukan sakit… aku jatuh ke hatimu.”
-
-“Bersamamu, waktu seakan berhenti bernyanyi.”
-
-“Kamu bukan sekadar melodi, kamu seluruh laguku.”
-
-“Andai bisa kuputar ulang, aku tetap akan memilihmu di setiap bait.”
+“I fell, but this time it wasn't pain… I fell into your heart.” "With you, time seems to stop singing." “You are not just a melody, you are my whole song.” “If I could replay it, I would still choose you in every verse.”
